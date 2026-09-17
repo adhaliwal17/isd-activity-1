@@ -11,6 +11,6 @@ This activity will help to reinforce learning of the Module 1 concepts of:
 
 Amarveer Singh Dhaliwal
 
-## Additional Information
+
 
 
